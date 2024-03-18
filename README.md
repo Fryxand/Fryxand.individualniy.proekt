@@ -1,0 +1,1 @@
+# Fryxand.individualniy.proekt
